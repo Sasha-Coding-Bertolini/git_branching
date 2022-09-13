@@ -15,3 +15,15 @@
 7. Mix well, then divide the mixture into 4 even portions and shape into burgers. Place on the second lined baking tray and bake for 25 minutes.Remove and serve with hummus on top.
 
 I just add some random text.
+
+##Ingredients:
+
+60 g cashew nuts
+400 g uncooked beetroot
+140 g walnuts
+80 g vegan cheddar cheese
+20 g fresh mint
+10 g firm tofu
+1 lemon (juice)
+100 g fresh breadcrumbs
+150 g hummus
